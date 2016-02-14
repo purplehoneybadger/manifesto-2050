@@ -1,0 +1,1 @@
+# manifesto-2050
